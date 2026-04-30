@@ -1,1 +1,1 @@
-## view here : https://gtgperfumes-madebyapra.netlify.app/
+## view here : [https://gtgp.netlify.app/]
